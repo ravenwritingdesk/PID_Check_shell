@@ -1,3 +1,4 @@
 # PID_Check_shell
 OS_test1
-### 本人保留所有权力
+### ALL RIGHTS RESERVED.
+#### DO NOT COPY THIS...OR RATHER I AM UR FATHER
